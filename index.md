@@ -1,5 +1,20 @@
 ## Twitter Prize Draw – Apple Watch Series 4 Terms & Conditions
-
-1.
-2.
-3.
+1. The  prize draw opens at 13.00 UK time on 24th November 2018 (the “Opening Date”), and closes  at 18:00 UK time on 25th November 2018 (the “Closing Date”), (the “Prize-Draw Period”). 
+2. **How to enter:** To enter the prize draw you must Tweet **@WhichUK** with your response to the the question “What consumer issue do you most question?” (the “Question”) using the hashtag **#WhichxSMR** before the Closing Date (the “Prize Draw”).
+3. Entry to the Prize Draw is free and is open to all residents of the United Kingdom aged 18 and over (proof of age may be required) attending the Silicon Milkroundabout Event (taking place at The Old Truman Brewery, 91 Brick Lane, London E1 6QR) during the Prize Draw Period.
+- a.) employees of Which? Limited, Which? Financial Services Limited or the Consumers’ Association; and
+- b.) non-employees working at Which? Limited, Which? Financial Services Limited or the Consumers’ Association, their immediate families and anyone living in the employee's or non-employee’s household.
+4. Entry to the Prize Draw is limited to one entry per person. Attempting to enter the Prize Draw more than once by tweeting answers to the Question multiple times or from multiple Twitter accounts, may disqualify you from the Prize Draw.  
+5. By carrying out the actions set out at clause 2 above you will be deemed to have understood and accepted to be bound by these terms and conditions. 
+6. The prize is an **Apple Watch Series 4** with an RRP of **£429 (the "Prize").** No cash alternatives are available.  Which? reserves the right to substitute the Prize for an alternative Prize of equivalent or greater monetary value if this is necessary for reasons beyond its reasonable control. 	
+7. There will be one Prize winner. The winner will be selected at random by computer from all eligible entries received by Which? by the Closing Date.
+8. The winner will be announced on our Twitter page https://twitter.com/WhichUK after 12 noon on 30th November 2018 (the “Prize Draw Date”). You agree that if you are selected as the winner, we may disclose your **Twitter handle** for this purpose.
+9. As well as generally announcing the winner in accordance with clause 8 above, we will tweet the winner directly letting them know that they have been selected as the winner and asking them to provide their postal address, to which the Prize will be sent. The winner will be required to provide their postal address before their Prize can be released. 
+10. The Prize will be sent to the winner at our expense, by recorded delivery to the postal address provided within 30 days of the winner providing their address. 
+11. If we have not heard from the winner, or if the winner fails to provide their postal address within 30 days of the Prize Draw Date, we reserve the right, at our absolute discretion, to consider the winner to have forfeited the Prize and to withdraw the Prize entitlement of that person.
+12. Which? takes no responsibility for entries that are delayed or lost due to technical reasons or otherwise.
+13. Any personal data that we collect in connection with this Prize Draw will be processed in accordance with the European Regulation 2016/679 (the General Data Protection Regulation), Directive 2002/58/EC (Directive on privacy and electronic communications), the Data Protection Act 2018 and any additional applicable laws (including national implementing laws, regulations and secondary legislation), and with our privacy policy, a copy of which can be viewed at http://www.which.co.uk/privacy-policy/#?intcmp=GNF.Privacy-Policy and will only be used to in order to administer this promotion. 
+14. Which? reserves the right to withdraw or amend either the Prize Draw or these terms and conditions at any time, without notice if this is necessary for reasons beyond its reasonable control.	
+15. The decision of Which? is final and no correspondence will be entered into. Entries that do not comply in full with these terms and conditions will be invalid and disqualified. 
+16. These terms and conditions shall be governed by and construed in accordance with English law and any disputes arising from these terms and conditions shall be subject to the exclusive jurisdiction of the Courts of England and Wales.
+17. The promoter of the prize draw is Which? Limited, a company registered in England & Wales (company number 00677665) whose registered office is at 2 Marylebone Road, London NW1 4DF (“Which?”).	
