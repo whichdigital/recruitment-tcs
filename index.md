@@ -2,8 +2,8 @@
 1. The  prize draw opens at 13.00 UK time on 24th November 2018 (the “Opening Date”), and closes  at 18:00 UK time on 25th November 2018 (the “Closing Date”), (the “Prize-Draw Period”). 
 2. **How to enter:** To enter the prize draw you must Tweet **@WhichUK** with your response to the the question “What consumer issue do you most question?” (the “Question”) using the hashtag **#WhichxSMR** before the Closing Date (the “Prize Draw”).
 3. Entry to the Prize Draw is free and is open to all residents of the United Kingdom aged 18 and over (proof of age may be required) attending the Silicon Milkroundabout Event (taking place at The Old Truman Brewery, 91 Brick Lane, London E1 6QR) during the Prize Draw Period.
-    * a.) employees of Which? Limited, Which? Financial Services Limited or the Consumers’ Association; and
-    * b.) non-employees working at Which? Limited, Which? Financial Services Limited or the Consumers’ Association, their immediate families and anyone living in the employee's or non-employee’s household.
+    * employees of Which? Limited, Which? Financial Services Limited or the Consumers’ Association; and
+    * non-employees working at Which? Limited, Which? Financial Services Limited or the Consumers’ Association, their immediate families and anyone living in the employee's or non-employee’s household.
 4. Entry to the Prize Draw is limited to one entry per person. Attempting to enter the Prize Draw more than once by tweeting answers to the Question multiple times or from multiple Twitter accounts, may disqualify you from the Prize Draw.  
 5. By carrying out the actions set out at clause 2 above you will be deemed to have understood and accepted to be bound by these terms and conditions. 
 6. The prize is an **Apple Watch Series 4** with an RRP of **£429 (the "Prize").** No cash alternatives are available.  Which? reserves the right to substitute the Prize for an alternative Prize of equivalent or greater monetary value if this is necessary for reasons beyond its reasonable control. 	
